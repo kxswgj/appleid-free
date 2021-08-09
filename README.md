@@ -18,6 +18,6 @@
 
 【3】美区 apple id 账号：ponj85@163.com(已经购买shadowrocket小火箭)
 
-【3】美区 apple id 密码：fq66FQ66([验证码请加tg群](https://t.me/apple_id_share))
+【3】美区 apple id 密码：fq66FQ66(<a href="https://t.me/apple_id_share" target="_blank">验证码请加tg群</a>)
 
-#[便宜，稳定，速度快 节点推荐](https://kxswgj.ml)
+#<a href="https://kxswgj.ml" target="_blank">便宜，稳定，速度快 科学上网节点推荐</a>
