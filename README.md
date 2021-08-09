@@ -1,4 +1,4 @@
-# 最新美国Apple ID账号免费分享，ssr, v2ray, trojan 免费节点
+# 最新美国Apple ID免费分享，ssr, v2ray, trojan 免费节点
 
 
 
@@ -20,6 +20,6 @@
 
 【3】美区 apple id 密码：fq66FQ66(<a href="https://t.me/apple_id_share" target="_blank">验证码请加tg群</a>)
 
-# <a href="https://kxswgj.ml" target="_blank">便宜，稳定，速度快 科学上网节点推荐</a>
+## <a href="https://kxswgj.ml" target="_blank">便宜，稳定，速度快 科学上网节点推荐</a>
 
-# <a href="https://kxswgj.ml" target="_blank">ssr, v2ray, trojan注册就可以免费获取</a>
+## <a href="https://kxswgj.ml" target="_blank">ssr, v2ray, trojan注册就可以免费获取</a>
