@@ -1,6 +1,6 @@
 # 最新美国Apple ID免费分享，ssr, v2ray, trojan 免费节点
 
-### 分享不易，如果对您有用，请点个小星星，后面会持续更新
+### [分享不易，如果对您有用，请点个小星星，后面会持续更新](https://github.com/kxswgj/appleid-free)
 
 ### 最新美国Apple ID账号免费分享（用完请退出账号！）
 
