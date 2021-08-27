@@ -6,19 +6,21 @@
 
 【1】美区 apple id 账号：rwhl27@163.com(此账号没买shadowrocket)
 
-【1】美区 apple id 密码：Ad112211(用完麻烦退出)
+【1】美区 apple id 密码：Sharejj.ml8(用完麻烦退出)
 
 推荐低价海外全新Apple ID购买
 
 【2】美区 apple id 账号：ziko17@163.com(必须在蓝色 AppStore软件里面登录使用)
 
-【2】美区 apple id 密码：Ad112211(如果去设置里面登录使用，你的手机会变砖!)
+【2】美区 apple id 密码：Sharejj.ml8(如果去设置里面登录使用，你的手机会变砖!)
 
 ### 注意：千万不要在 iCloud 登陆
 
-【3】美区 apple id 账号：ponj85@163.com(已经购买shadowrocket小火箭)
+### 注意: iCloud 登陆造成锁机，概不负责！！！
 
-【3】美区 apple id 密码：加群获取(<a href="https://t.me/apple_id_share" target="_blank">验证码请加tg群</a>)
+【3】美区 apple id 账号：hciueh@163.com(已经购买shadowrocket小火箭)
+
+【3】美区 apple id 密码：Sharejj.ml8(<a href="https://t.me/apple_id_share" target="_blank">验证码请加tg群</a>)
 
 
 ### <a href="https://kxswgj.ml" target="_blank">便宜，稳定，速度快 科学上网节点推荐</a>
