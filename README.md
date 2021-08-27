@@ -16,7 +16,7 @@
 
 ### 注意：千万不要在 iCloud 登陆
 
-### 注意: iCloud 登陆造成锁机，概不负责！！！
+### 注意：iCloud 登陆造成锁机，概不负责！！！
 
 【3】美区 apple id 账号：hciueh@163.com(已经购买shadowrocket小火箭)
 
