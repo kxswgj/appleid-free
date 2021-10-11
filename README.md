@@ -1,8 +1,10 @@
-# 最新美国Apple ID免费分享，ssr, v2ray, trojan 免费节点
+# 最新美国Apple ID免费分享，shadowrocket小火箭，ssr, v2ray, trojan 免费节点
 
 ### [分享不易，如果对您有用，请点个小星星，后面会持续更新](https://github.com/kxswgj/appleid-free)
 
 ### 最新美国Apple ID账号免费分享（用完请退出账号！）
+
+## 1，2已挂，请用第3个
 
 【1】美区 apple id 账号：rwhl27@163.com(此账号没买shadowrocket)
 
