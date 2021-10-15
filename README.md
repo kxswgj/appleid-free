@@ -25,6 +25,6 @@
 【3】美区 apple id 密码：Sharejj.ml8(<a href="https://t.me/apple_id_share" target="_blank">验证码请加tg群</a> 或V：leezy_forever)
 
 
-### <a href="https://kxswgj.ml" target="_blank">便宜，稳定，速度快 科学上网节点推荐</a>
+### <a href="https://kxswgj.ml" target="_blank">便宜，稳定，速度快 科学上网节点 https://kxswgj.ml</a>
 
 ### <a href="https://kxswgj.ml" target="_blank">ssr, v2ray, trojan 节点注册就可以免费获取</a>
