@@ -20,12 +20,12 @@
 
 ### 注意：iCloud 登陆造成锁机，概不负责！！！
 
-【3】美区 apple id 账号：yysim390@163.com(已经购买shadowrocket小火箭)
+【3】美区 apple id 账号：hciueh@163.com(已经购买shadowrocket小火箭)
 
-【3】美区 apple id 密码：Code1123(<a href="https://t.me/apple_id_share" target="_blank">验证码请加tg群</a> 或V：leezy_forever)
+【3】美区 apple id 密码：(<a href="https://t.me/apple_id_share" target="_blank">密码请加tg群</a> 或V：leezy_forever)
 
 
 
-### <a href="https://kxswgj.ml" target="_blank">便宜，稳定，速度快 科学上网节点 https://kxswgj.ml</a>
+### <a href="https://365vpn.ml" target="_blank">便宜，稳定，速度快 科学上网节点 https://365vpn.ml</a>
 
-### <a href="https://kxswgj.ml" target="_blank">ssr, v2ray, trojan 节点注册就可以免费获取</a>
+### <a href="https://365vpn.ml" target="_blank">ssr, v2ray, trojan 节点注册就可以免费获取</a>
