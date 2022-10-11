@@ -10,7 +10,7 @@
 
 【1】美区 apple id 密码：Sharejj.ml8(用完麻烦退出)
 
-推荐低价海外全新Apple ID购买
+<a href="https://idbuy.xyz">推荐独享小火箭账号，apple id</a>
 
 【2】美区 apple id 账号：ziko17@163.com(必须在蓝色 AppStore软件里面登录使用)
 
@@ -21,6 +21,8 @@
 ### 注意：iCloud 登陆造成锁机，概不负责！！！
 
 【3】美区 apple id 账号：yysim390@163.com(已经购买shadowrocket小火箭)
+
+<a href="https://idbuy.xyz">推荐独享小火箭账号，apple id</a>
 
 【3】美区 apple id 密码：(<a href="https://t.me/apple_id_share" target="_blank">密码请加tg群</a> 或V：leezy_forever)
 
