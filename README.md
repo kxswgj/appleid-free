@@ -28,8 +28,9 @@
 
 
 
-### <a href="https://vip520.ml" target="_blank">便宜，稳定，速度快 科学上网香港节点 https://vip520.ml</a>
+### <a href="https://cd520.xyz" target="_blank">便宜，稳定，速度快 科学上网免费节点 https://cd520.xyz</a>
 
-### <a href="https://vip520.ml" target="_blank"> 加V购买可以享受半价优惠哦！！！ </a>
+### <a href="https://cd520.xyz" target="_blank"> 加V购买可以享受特价优惠哦！！！ </a>
 
-### <a href="https://vip520.ml" target="_blank">ssr, v2ray, trojan 节点注册就可以免费获取</a>
+<img width="866" alt="image" src="https://user-images.githubusercontent.com/66905181/196188443-cc20655f-a4f8-453f-b8ee-5424d6c4733a.png">
+
