@@ -32,5 +32,5 @@
 
 ### <a href="https://cd520.xyz" target="_blank"> 加V购买可以享受特价优惠哦！！！ </a>
 
-<img width="866" alt="image" src="https://user-images.githubusercontent.com/66905181/196188443-cc20655f-a4f8-453f-b8ee-5424d6c4733a.png">
 
+![733a](https://user-images.githubusercontent.com/66905181/196190682-0b0f91c4-d0a9-48a4-964d-5c71b419ff05.png)
