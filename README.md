@@ -27,13 +27,12 @@
 <img width="510" alt="image" src="https://user-images.githubusercontent.com/66905181/208278914-b243b24d-2e3f-40f5-94a6-28c05f9edc34.png">
 
 
-【3】美区 apple id 密码：(<a href="https://t.me/apple_id_share" target="_blank">密码请加tg群</a> 或 applege.cc 查看)
+【3】美区 apple id 密码：(<a href="https://t.me/apple_id_share" target="_blank">密码请加tg群</a> 或 <a href="https://applege.cc" target="_blank">applege.cc</a> 查看)
 
 
 
 ### <a href="https://cd520.xyz" target="_blank">便宜，稳定，速度快 科学上网免费节点 https://cd520.xyz</a>
 
-### <a href="https://cd520.xyz" target="_blank"> 加V购买可以享受特价优惠哦！！！ </a>
+### <a href="https://cd520.xyz" target="_blank"> 加V购买可以享受特价优惠哦！！！ v: leezy_forever </a>
 
 
-![733a](https://user-images.githubusercontent.com/66905181/196190682-0b0f91c4-d0a9-48a4-964d-5c71b419ff05.png)
