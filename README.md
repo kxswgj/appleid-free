@@ -31,8 +31,8 @@
 
 
 
-### <a href="https://cd520.xyz" target="_blank">便宜，稳定，速度快 科学上网免费节点 https://cd520.xyz</a>
+### <a href="https://vip666.xyz" target="_blank">便宜，稳定，速度快 科学上网免费节点 https://vip666.xyz</a>
 
-### <a href="https://cd520.xyz" target="_blank"> 加V购买可以享受特价优惠哦！！！ v: leezy_forever </a>
+### <a href="https://vip666.xyz" target="_blank"> 加V购买可以享受特价优惠哦！！！ v: leezy_forever </a>
 
 
